@@ -2,13 +2,6 @@
 # Hello there ~ I'm Seren ♡  
 ⤷ `Designer • Dreamer • Web Enthusiast`
 
-### 🛠 What I love working with:
-- WordPress + custom themes ✧
-- SCSS, ACF, Polylang
-- Vite & modern front-end magic (｡•̀ᴗ-)✧
-- Aesthetic & minimalist UI/UX  
-- Accessibility & thoughtful design 🌱
-
 ### 🌸 A little about me:
 Passionate about visual storytelling, pixel-perfection and creating quiet beauty on the web.   
 
