@@ -2,7 +2,7 @@
 ⤷ `Designer • Dreamer • Web Enthusiast`
 
 ### ᯓᡣ𐭩 A little about me:
-Passionate about visual storytelling, pixel-perfection and creating quiet beauty on the web.   
+Passionate about visual storytelling, pixel-perfection and creating beauty on the web.   
 
 ### ୨୧ ＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿  
 
